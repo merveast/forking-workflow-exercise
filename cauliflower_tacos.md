@@ -12,5 +12,5 @@ Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 - Caramelized red onions
 - Guacamole
 - Yogurt
-- Smoked paprika
+- Some smoked paprika
 - Tortilla of choice, warmed in a dry pan
